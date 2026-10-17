@@ -219,4 +219,4 @@ Arknights is available as a complete free version with all features and updates 
 Ready to defend your base and take on the challenge? **Download Arknights for free today and immerse yourself in an unforgettable strategy experience!**
 
 ---
-**Last updated:** 2026-10-17 14:45:10 UTC
+**Last updated:** 2026-10-17 17:40:59 UTC
